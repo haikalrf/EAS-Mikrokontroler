@@ -1,3 +1,3 @@
 # Link Video Hasil Eksperimen
 
-[Vide Hasil Eksperimen](https://youtu.be/swE-LyWdDm4)
+[Video Hasil Eksperimen](https://youtu.be/swE-LyWdDm4)
